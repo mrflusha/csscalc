@@ -1,1 +1,1 @@
-IDK<br> <strong>WHATIMDOING</strong>
+After saw how Front-end developer used system calculator :0
